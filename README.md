@@ -1,1 +1,2 @@
-# Cr-dito-en-cuenta-corriente
+# Crédito-en-cuenta-corriente
+El crédito comercial puede adoptar formas distintas, pero a los efectos de esta clasificación, la condición básica es que su costo está dado por “descuentos por pronto pago”, ya que, si fuera documentado, garantizado o pagará intereses, según el ordenamiento que se sigue, queda tratado en lo comentado para cada una de dichas características de financiamiento. Su modalidad más difundida es la de cuenta abierta o cuenta corriente, por la cual el proveedor otorga al cliente la facilidad de pagar las compras facturadas transcurrido un cierto tiempo y por un monto total predeterminado.
